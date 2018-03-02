@@ -2,6 +2,8 @@
 
 URL to forked repo is https://github.com/dmoloney76/year3-story-2018.git
 
+Link to Published GitHub Pages is https://dmoloney76.github.io/year3-story-2018/ 
+
 
 <GIT STORY - RELEASE 3.0<UNRELEASED>>
 
