@@ -12,7 +12,7 @@ in a world which is now governed by an artificial intelligent group know as the 
 
 CHAPTER ONE (Hope) - Deals with the hope that keeps Frank going (Complete)
 
-CHAPTER TWO (The Promise) - One person clings dearly to a promise they made (Complete)
+CHAPTER TWO (The Promises) - One person clings dearly to promises that were made (Complete)
 
 CHAPTER THREE (The Search) - An attempt is made to find a lost soul (Complete)
 
