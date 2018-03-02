@@ -14,6 +14,6 @@ CHAPTER ONE (Hope) - Deals with the hope that keeps Frank going (Complete)
 
 CHAPTER TWO (The Promises) - One person clings dearly to promises that were made (Complete)
 
-CHAPTER THREE (The Search) - An attempt is made to find a lost soul (Complete)
+CHAPTER THREE (The Search) - (ALTERNATIVE ENDING) An attempt is made to find a lost soul (Complete)
 
 
